@@ -1,4 +1,4 @@
-# hellow eloo guys
+# hellow eloo guys ^_^/
 
 <details>
   <summary>uhhh socials n stuff</summary>
